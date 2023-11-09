@@ -1,1 +1,1 @@
-# resurse
+# resurse utile
